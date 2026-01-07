@@ -1,7 +1,7 @@
 # Spark Privacy Policy  
 _Including Cookie Statement_  
 
-_Last updated: [insert date]_
+_Last updated: [07/01/2026]
 
 ---
 
